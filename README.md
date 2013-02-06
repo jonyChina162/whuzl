@@ -1,4 +1,4 @@
 lake-heart
 ==========
 
-learn to lake,with a heart belongs to lake,be deep and quiet
+learn from lake,with a heart belongs to lake,be deep and quiet
